@@ -1,3 +1,4 @@
-remakng sooon 
+literally pickles the drummer irl 
+tiktok ; @/fawnklok
  <p align="center">
-<img width="375" height="375" alt="lego bricks and pixie sticks (1) (1)" src="https://i.pinimg.com/originals/6c/a4/dd/6ca4dd45b187bd772c1c3cd1663e2ff7.gif" />
+<img width="375" height="375" alt="lego bricks and pixie sticks (1) (1)" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQgPNgZSVuQD2JKBkt0f78SbyIkJgI2i9boNg&s" />
