@@ -15,4 +15,4 @@ $\color{rgb(245, 245, 245)}{\textsf{i like pickles more than u doubles dni🐙}}
 
 ⠀![Alt text for the image](https://i.postimg.cc/kgTfr9M6/Screenshot-2026-03-21-9-24-36-AM-38.png)
 
-![Alt text for the image](https://img1.picmix.com/output/stamp/normal/6/1/7/6/2626716_576ab.gif)
+![Alt text for the image](https://files.catbox.moe/wsklxm.gif)
