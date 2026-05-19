@@ -20,4 +20,4 @@ ${{\color{#FF0000}{\textsf{ ʙʏɪ morally a bad person , iwec : always wanting 
 
 ${{\color{#B22222}{\textsf{ tiktok @wartoothsmut , twt @fawnhalen , discord @klokateers  }}}}$
 
-ok whatever 🙄🙄🙄peees myself a little and blocks, god forbid someone be mentally ill because of someone named ryan who twists my words and much more🤣🤣🤣yuo both go die, SLIT DEEPER!!! 
+ok whatever 🙄🙄🙄peees myself a little and blocks, god forbid someone be mentally ill because of someone named ryan who twists my words and much more🤣🤣🤣hes acting as if he wasnt enjoying that and fetishizing that too ;-;;;;
