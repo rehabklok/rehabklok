@@ -7,8 +7,8 @@
 
 ${{\color{#FF0000}{\textsf{ "doubles" dni, you guys are fakes }}}}$
 
-${{\color{#FF0000}{\textsf{ pickles + magnus ᵒⁿˡʸ lover , cope lmao }}}}$
-${{\color{#DC143C}{\textsf{10/30/25 , 05/15/26 ˳ ֹ.}}}}$
+${{\color{#FF0000}{\textsf{ pickles' ᵒⁿˡʸ lover , cope lmao }}}}$
+${{\color{#DC143C}{\textsf{10/30/25 , the best day˳ ֹ.}}}}$
 
 <img src="https://i.postimg.cc/CKdM7G5X/Adobe-Express-file-(1).png" />
 <br>
