@@ -22,7 +22,7 @@ ${{\color{#FF0000}{\textsf{ ʙʏɪ morally a bad person , iwec : always wanting 
 
 ${{\color{#B22222}{\textsf{ tiktok @wartoothsmut , twt @fawnhalen , discord @klokateers  }}}}$
 
-${{\color{#FF0000}{\textsf{ hold me. with all your tentacles now. }}}}$
+${{\color{#FF0000}{\textsf{ i love you pickles }}}}$
 
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQIbOdEtZXSNHkwXWnMkjQd_Q5FfYgc2b7gKg&amp;s" alt="Celebrating Pickles the Drummer from Metalocalypse"/>
 
