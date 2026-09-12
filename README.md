@@ -1,5 +1,9 @@
 <h6 align="center">
 
+
+![Image](https://i.postimg.cc/j5YhKNg1/25804.png)
+
+
  ![profileviews](https://komarev.com/ghpvc/?username=srehabklok&style=plastic&label=drummers+&color=8B0000&abbreviated=true)
 
 
@@ -9,4 +13,3 @@
 <h6 align="center">
 𓂃  pickles the drummer yume, he loves his little fawn )( DOUBLES DNI )
  
-![Image](https://i.postimg.cc/j5YhKNg1/25804.png)
